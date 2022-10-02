@@ -1,3 +1,6 @@
+[s V2.pdf](https://github.com/mopickens/mopickens/files/9692367/s.V2.pdf)
+[s V2.pdf](https://github.com/mopickens/mopickens/files/9692368/s.V2.pdf)
+[s V2.pdf](https://github.com/mopickens/mopickens/files/9692370/s.V2.pdf)
 - 👋 Hi, I’m @mopickens
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
